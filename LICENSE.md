@@ -1,4 +1,4 @@
-#  
+#  Experience be a lucky block like never before with best be a lucky block Script, the #1 Script. Includes auto-farm and auto-sell for unbeatable
 
 
 
